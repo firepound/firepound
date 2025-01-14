@@ -3,3 +3,4 @@
 
  ⠀⠀   ⠀⠀  ⠀⠀ ⠀⠀ YOU ' RE GOOD AT BEING PERFECT ! ⠀⠀  ⠀⠀ WE ' RE GOOD AT BEING TROUBLED !
 
+![](https://i.postimg.cc/Y9gxwkGw/image-2025-01-14-181035300.png)
