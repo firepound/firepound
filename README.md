@@ -1,6 +1,6 @@
-![banner](https://i.postimg.cc/FsXBzCNZ/image-2025-01-14-180953961.png)
-![CREDITS : rottenparasite](https://i.postimg.cc/Hs31CtHL/image-2025-01-14-180258624.png) 
+![banner](https://i.postimg.cc/bNBR5GFy/IMG-3774.png)
+![CREDITS : hopefilledgraphics](https://i.postimg.cc/wxF2h4Xs/IMG-3773.png) 
 
- ⠀⠀   ⠀⠀  ⠀⠀ ⠀⠀  ⠀⠀  ⠀⠀⠀YOU ' RE GOOD AT BEING PERFECT ! ⠀⠀  ⠀⠀ WE ' RE GOOD AT BEING TROUBLED !
+ ⠀⠀   ⠀⠀  ⠀⠀ ⠀⠀  ⠀⠀  ⠀⠀⠀MESSY BITCH ⠀⠀  ⠀⠀ WHO LIVES FOR DRAMA !
 
-![](https://i.postimg.cc/Y9gxwkGw/image-2025-01-14-181035300.png)
+![](https://i.postimg.cc/286wTdG9/IMG-3775.png)
