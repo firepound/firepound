@@ -1,6 +1,6 @@
 ![](https://i.postimg.cc/kGYjFvBK/IMG-3816.png)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀queer people are ⠀⠀getting shipped to antarctica
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀I don't know anyone named pound. if he says he knows me he's lying.
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://i.postimg.cc/Y0bs2HsK/image-2025-01-17-130201726.png)
 
