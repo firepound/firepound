@@ -1,6 +1,6 @@
 ![](https://i.postimg.cc/kGYjFvBK/IMG-3816.png)
 
-queer people are getting shipped to antarctica
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀queer people are ⠀⠀getting shipped to antarctica
 
 ![](https://i.postimg.cc/wTSyyR0r/IMG-3815.jpg)
 
